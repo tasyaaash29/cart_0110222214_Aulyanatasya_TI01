@@ -1,0 +1,2 @@
+# cart_0110222214_Aulyanatasya_TI01
+TUGAS CART 2
